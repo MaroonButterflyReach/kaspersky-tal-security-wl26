@@ -1,4 +1,4 @@
-# 
+# new Bitdefender Total Security لجهاز الكمبيوتر سكربتات هو أفضل Bitdefender Total Security لجهاز الكمبيوتر سكربتات مع تكامل VPN و الحماية في الوقت الفعلي. آمن، موثوق، ومُحَسّن
 
 
 
